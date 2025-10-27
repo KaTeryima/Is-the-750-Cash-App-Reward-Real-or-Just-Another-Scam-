@@ -3,7 +3,7 @@ If you're anything like me, you've probably seen those flashy ads promising a $7
 
 ## What is the $750 Cash App Reward?
 
-The $[750 Cash App reward](https://medium.com/@teryimashedracktd098/5-hacks-to-claim-free-750-cash-app-rewards-e47468a8056c) is an offer from third-party services like Flash Rewards. It's not directly from Cash App itself. To claim this reward, you need to complete a series of tasks, often referred to as "deals." These tasks can include anything from taking surveys, signing up for free trials, or even making purchases.
+The $750 cash app reward is an offer from third-party services like Flash Rewards. It's not directly from Cash App itself. To claim this reward, you need to complete a series of tasks, often referred to as "deals." These tasks can include anything from taking surveys, signing up for free trials, or even making purchases.
 
 **I have done all the research for you and gather all the legitimate offers in one place. You can [claim any offer](https://giftcardsandfreebies.spread.name/) from Cash app, PayPal, Amazon, Roblox, PSN and more..**
 
